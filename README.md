@@ -22,4 +22,5 @@
 ## Congratulations!
 Congratulations on achieving **Grade B**, **Cadet Sundhir Singh Hardiyal Singh!** Your hard work and dedication in the National Cadet Corps (NCC) are commendable. Keep up the great work!
 
+![Logo](https://github.com/hppy7/NCC_CERTIFICATE_INFANTRY/blob/main/ncc%20certificate.pdf)
 
