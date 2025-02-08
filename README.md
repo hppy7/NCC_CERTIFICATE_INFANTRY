@@ -24,3 +24,8 @@ Congratulations on achieving **Grade B**, **Cadet Sundhir Singh Hardiyal Singh!*
 
 ![Logo](https://github.com/hppy7/NCC_CERTIFICATE_INFANTRY/blob/main/ncc%20certificate.pdf)
 
+
+
+
+<img align="right" alt="coding" width="400" src="https://qph.cf2.quoracdn.net/main-qimg-e2167f632ce4d0a3d8e395d717a56037-lq">
+
